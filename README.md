@@ -63,17 +63,17 @@ http://360.mafengwo.cn/travels/info.php?id=1144319
 来源：知乎
 著作权归作者所有。商业转载请联系作者获得授权，非商业转载请注明出处。
 
-(img)https://pic2.zhimg.com/50/v2-a7dfced7b3fa79dee69aa82147aca56a_hd.jpg
+!(台北故宫博物馆)https://pic2.zhimg.com/50/v2-a7dfced7b3fa79dee69aa82147aca56a_hd.jpg
 台北故宫博物馆
 
-[img](https://pic3.zhimg.com/50/562fd5bf3f31459e55100b0fd5d3288a_hd.jpg)
+![垦丁的一个海滩](https://pic3.zhimg.com/50/562fd5bf3f31459e55100b0fd5d3288a_hd.jpg)
 垦丁的一个海滩
 
-[img](https://pic4.zhimg.com/50/v2-7c06ed792a2655fa1c095e4af4f636bb_hd.jpg)
+![垦丁国家公园（猫头鼻）—白沙湾](https://pic4.zhimg.com/50/v2-7c06ed792a2655fa1c095e4af4f636bb_hd.jpg)
 垦丁国家公园（猫头鼻）—白沙湾
 
-[img](https://pic1.zhimg.com/50/fa24905ce0ef9e80fbb79bc2c45b7974_hd.jpg)
-最喜欢台湾7-11
+![最喜欢台湾7-11](https://pic1.zhimg.com/50/fa24905ce0ef9e80fbb79bc2c45b7974_hd.jpg)
+台湾7-11
 
 跟男盆友聊天的时候，一抬头便看到了这朵云，感觉有爱到不行。表示这只是我用iPad随手拍的，天这么蓝，也是醉了。这是白砂，就是少年派拍摄的地方，个人真的很喜欢恒春这种小镇，去肯定又超级方便，正好老妈也不舒服，就干脆把余下行程全都定在了这里，每天早上睡醒了出门，逛逛，吃吃，看看海，发发呆。
 
