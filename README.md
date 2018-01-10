@@ -435,15 +435,20 @@
 
 ![](https://pic2.zhimg.com/50/e2f33f7ba7fca1808cf5449da4266a19_hd.jpg)
 
+![](https://b1-q.mafengwo.net/s6/M00/E1/0C/wKgB4lMyb_iAQ-oKADklSX6PrMc916.gif?imageView2%2F2%2Fw%2F600%2Fq%2F90)
 
-
+![](https://n1-q.mafengwo.net/s6/M00/61/B9/wKgB4lMv9KyAOUf5ACaJ8qX8RPw092.bmp?imageView2%2F2%2Fw%2F600%2Fq%2F90)
 ## 旅途愉快，阳光正好～！
 
 
 
 2018-01-04 预约办理通行证 + 签证
+
 2018-01-04 预交费用 3000左右 —— CFO买买提
-2018-01-07 办理入台证 to 崔创
+
+2018-01-07 办理入台证 —— 崔创
+
 2018-01-10 买往返机票【时间尽量提前】—— CFO买买提
+
 2018-01-27 —— 欢迎来到新世界
 
